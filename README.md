@@ -4,6 +4,46 @@ ARMIS (ARM Intern Society) is a society that breeds a friendly and fun environme
 MEETING LOG
 ----------------------------------------
 
+**24/07/2017**
+
+Committee Meeting #3
+
+BAKE SALE
+- Get trollies to go around the offices and sell the cakes with a friendly face to encourage people (especially busy/lazy).
+- Can send an email out to all Cambridge to take orders for pre-sales and deliver them in the morning (a team did this last year and was effective)
+- Talk to people who have meetings and ask if they’d like to have cake for meetings (could do discounts for big orders)
+- A slice would probably sit at £1 ish, maybe try to get a cake to last 20 slices
+- Brownies could be £1.50
+- Cupcakes could be £2
+- Lunchtime setup a few stands around campus, ARM 3 kitchen, atrium etc
+- Get in contact with interns around all of cambridge and get as many interns involved with baking! Acknowledgement will be given to those that get involved
+- If we raise £1000, we get an extra £1000 matched by ARM
+- Splitting up around campus is essential for the domination game, since the committee all work in separate teams we already have a nice spread.
+
+Charities
+- EARS.org,
+- Poll on Yammer on which charity to use. 
+- Week of the 7th August. 
+
+
+
+NEXT SOCIAL
+012233 58899 - Miso Cambridge (ask how many are in a booth) or try to get a deal
+
+6:30pm - 8:30pm is the ideal time (2 hours)
+
+Reserve between 30-40 spaces
+
+- The Snug Bar (Grafton) do a karaoke night on Sunday at 7pm, this isn’t after work as its a weekend day but it could be a potential option as its a nice venue (by the looks of the photos) and it could well be cheaper if its a public night.
+- (Sing your heart out and enjoy a great night out with our ever popular Karaoke night. As well as having 2-4-1 cocktails all day and night we're also giving you and your friends FREE nachos when you book a table in advance.)
+170 East Road
+Cambridge, CB1 1DB
+01223 367888
+
+0871 222 36 75 BOWLING ALLEY KAROKE. 
+
+A pub/bar that have a public karaoke night is going to be better for our budget. 
+
 **03/07/2017**
 Committee Meeting #1
 
