@@ -10,17 +10,17 @@ FUNDRAISER MEETING
 Karaoke
 •	Rahul calling the venues today  
 •	also send an email to the interns about the  event today/tomorrow  
-•	we prefer weekdays to Sundays, but Sunday will be ok still 
-note: maybe dont organise it the next Sunday because the bake sale is the next day
+•	we prefer weekdays to Sundays, but Sunday will be ok still  
+note: maybe dont organise it the next Sunday because the bake sale is the next day  
 
 Bake sale:
-•	we are still waiting for teamarm email - Deetz 
-•	then email the other countries: whos interested - Deetz 
-•	email the interns - get at least someone from each team to bring something - Zandro 
-•	create company wide email - Zandro 
-•	confluence pages for delivery and cakes being made/bought - Andreea 
-•	maybe make breakfast packages? - Denisa  
-•	content of packages: - Denisa (pastry+fruits) 
+•	we are still waiting for teamarm email - Deetz  
+•	then email the other countries: whos interested - Deetz  
+•	email the interns - get at least someone from each team to bring something - Zandro  
+•	create company wide email - Zandro  
+•	confluence pages for delivery and cakes being made/bought - Andreea  
+•	maybe make breakfast packages? - Denisa   
+•	content of packages: - Denisa (pastry+fruits)  
 
 
 **24/07/2017**
